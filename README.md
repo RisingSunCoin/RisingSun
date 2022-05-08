@@ -1,2 +1,0 @@
-# RisnigSun
-Rising Sun Token
